@@ -35,7 +35,7 @@ I have experience of website testing (a new company project), during which I con
 
 # Education: #
 
-Belarysian State University of Culture and Arts
+Belarusian State University of Culture and Arts
 
 Bibliography and translations
 
